@@ -1,1 +1,2 @@
-Now I'm creating a really HUGE conflict. MUAHAHAHAHAHAHA!
+I'm creating a small conflict.
+
